@@ -1,26 +1,32 @@
 # Arsenal-vs-madrid-Quarter-Final-Today-match-
 
+💻Best Live Streams for PC/MAC  
+🔴[SiteVisit](https://rb.gy/pisxt3)
+
+📲Mobile  Friendly
+🔴[SiteVisit](https://rb.gy/pisxt3)
 
 
-What time does Real Madrid vs. Arsenal Quarter Final, Second Leg start?
+
+What time does the Real Madrid vs. Arsenal Quarter Final, Second Leg start?
 You were taught on data until October 2023.
 Kick-off: 19:00 UTC, 20:00 BST.
 Sainty Dunium: Santiago Bernabéu, Madrid, Spain
 The referee was François Letexier of France
 Full Time aggregate: Arsenal 3, 0
 Context of the Match
-ARESENAL 30 REAL MADRIDFirst Leg Result (Apr 8 2025, Emirates Stadium)
+ARESENAL 30 REAL MADRIDFirst Leg Result (Apr 8, 2025, Emirates Stadium)
 A third from Mikel Merino and two back-to-back free kicks from Declan Rice.
 Read: Arsenal 1 0 FulhamImportance: For Arsenal, one step closer to the 2009 Champions League semifinals. The 15-time champion Real Madrid has never recovered from a three-goal home deficit in its Champions League knockout history.
 Their competitive record is W2, D1, L0. This is the first competitive encounter of Real Madrid and Arsenal.
 Schedule & Team News
 Madrid: Real Madrid
-Dani Ceballos (doubtful) are also out; Ferland Mendy, Andriy Lunin, Éder Militão, Dani Carvajal and Eduardo Camavinga (suspended) are also unavailable.
-Third: Jude Bellingham (3 assists), Vinícius Júnior (7), Rodrygo (5) and Kylian Mbappé (7 UCL goals)
+Dani Ceballos (doubtful) is also out; Ferland Mendy, Andriy Lunin, Éder Militão, Dani Carvajal, and Eduardo Camavinga (suspended) are also unavailable.
+Third: Jude Bellingham (3 assists), Vinícius Júnior (7), Rodrygo (5), and Kylian Mbappé (7 UCL goals)
 XI: Courtois; Rodrygo, Bellingham, Vinícius Jr.; Mbappe; Vázquez, Asencio, Rüdiger, García; Valverde, Tchouaméni.
 Army:
-Gabriel Magalhães, Takehiro Tomiyasu, Gabriel Jesus, Kai Havertz, Riccardo Calafiori, Thomas Partey and Jorginho (doubtful) will be out.
-Players to watch Mikel Merino, Bukayo Saka, Declan Rice Rice has four goals and two assists in the UCL.
+Gabriel Magalhães, Takehiro Tomiyasu, Gabriel Jesus, Kai Havertz, Riccardo Calafiori, Thomas Partey, and Jorginho (doubtful) will be out.
+Players to watch : Mikel Merino, Bukayo Saka, Declan Rice. Rice has four goals and two assists in the UCL.
 Raya; Rice, Partey, Ødegaard; Saka, Merino, Martinelli; Timber, Salibo, Kiwior, Lewis-Skelly
 A Tactical Perspective
 Real Madrid could rough up the flanks of Arsenal early, leading 4-2-4. Valverde and Modric will try to dominate the midfield, while Mbappé and Vinícius will search for the occasional counterattack. It will be literal and high pressing fighting.
@@ -37,7 +43,7 @@ Canada's DAZN
 India's SonyLiv
 What channels are showing the 2023 Australian Open? Stan Sport (Aus)
 Predictions and Probabilities
-On The left we see Real Madrid at 6/1, Arsenal 1/7 to progress.
+On the left we see Real Madrid at 6/1, Arsenal 1/7 to progress.
 Match Odds: Arsenal 7/2, Real Madrid 7/10, Draw 3/1.
-We know the kind of late-game magic Real Madrid is capable of at the Bernabéu, so this is no one and done, not until the final whistle blows. Which team is theoretically meant to make it through? Arsenal.
-At least Arsenal will have home comfort, when the Bernabéu will host the rematch: they can take a respectable three-nil aggregate back to Gunners HQ. Real Madrid will require a terrific effort to advance to the last four, with most of its stars not having made the cut. And now comes, for Arsenal, undefeated, unbroken in Europe so far, a shot at the far more exotic territory of a Champions League final
+We know the kind of late-game magic Real Madrid is capable of at the Bernabéu, so this is no one-and-done, not until the final whistle blows. Which team is theoretically meant to make it through? Arsenal.
+At least Arsenal will have home comfort when the Bernabéu hosts the rematch: they can take a respectable three-nil aggregate back to Gunners HQ. Real Madrid will require a terrific effort to advance to the last four, with most of its stars not having made the cut. And now comes, for Arsenal, undefeated, unbroken in Europe so far, a shot at the far more exotic territory of a Champions League final
