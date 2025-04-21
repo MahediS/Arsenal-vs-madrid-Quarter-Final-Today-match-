@@ -1,11 +1,5 @@
 # Arsenal-vs-madrid-Quarter-Final-Today-match-
 
-💻Best Live Streams for PC/MAC  
-🔴[SiteVisit](https://rb.gy/pisxt3)
-
-📲Mobile  Friendly
-🔴[SiteVisit](https://rb.gy/pisxt3)
-
 
 
 What time does the Real Madrid vs. Arsenal Quarter Final, Second Leg start?
